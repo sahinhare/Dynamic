@@ -1,1 +1,1 @@
-# Dynamic
+https://sahinhare.github.io/Dynamic/
